@@ -1,4 +1,4 @@
-### Hi 👋, I'm Shryo
+### Hi 👋, I'm Shyro
 I'm mastering the art of doing nothing.
 
 ### Contact Me 📞
